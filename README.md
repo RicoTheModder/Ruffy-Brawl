@@ -48,3 +48,5 @@ Soon
 APK
 
 Soon
+
+Sorry for bad english and self host without self host i cant change the theme :(
